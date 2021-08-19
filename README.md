@@ -1,3 +1,5 @@
+![image](https://user-images.githubusercontent.com/74982676/129993569-b1a65b00-80cd-49f4-a62a-13ad5ed13a04.png)
+
 ## Opa! Aqui é o perfil do Juliano Bobbio
 - 👀 I’m interested in Advpl
 
